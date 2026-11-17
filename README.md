@@ -1,0 +1,2 @@
+# BOZ213u03a12_346
+Ruhan Sadef USTA 25040221 BÖTE 2.Sınıf
